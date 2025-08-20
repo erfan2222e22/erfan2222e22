@@ -1,5 +1,5 @@
 # 💫 About Me:
-IM FRONT END DEVELOPER ALWAYS WANT <br>AND I always like to learn new things.
+IM FRONT END DEVELOPER ALWAYS WANT <br> to learn new things.
 
 
 ## 🌐 Socials:
